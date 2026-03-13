@@ -11,6 +11,6 @@ Puedes ver el portfolio aquí:
 
 ## 📬 Contacto
 
-🔗 GitHub: https://github.com/javi19xx
+🔗 Gmail: javielectronica1@gmail.com
 
 🔗 LinkedIn: https://www.linkedin.com/in/javier-su%C3%A1rez-cabello-80669333b/
